@@ -1,2 +1,2 @@
 For storage purposes mostly.
-Don't plagerize please :)
+Don't plagiarize please :)
